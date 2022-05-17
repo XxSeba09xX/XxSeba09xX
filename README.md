@@ -1,5 +1,5 @@
 - 👋 Hola Soy @XxSeba09xX
-- 👀 Estoy Interesado en Aprender PHP y js
+- 👀 Estoy Interesado en Aprender PHP
 - 🌱 Actualmente Estoy Aprendiendo PhP
 - 💞️ Estoy buscando colaborar... 
 - 📫 Me puede Contactar Por Dc: XxSeba09xX#1743
